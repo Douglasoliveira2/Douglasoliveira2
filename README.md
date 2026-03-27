@@ -6,7 +6,7 @@ Ola! Sou Douglas Oliveira 👋
 
 
 
-  QA Engineer · Automacao de Testes Web & Mobile · Rio de Janeiro, RJ
+  QA Engineer · Automacao de Testes Web & Mobile 
 
 
 
